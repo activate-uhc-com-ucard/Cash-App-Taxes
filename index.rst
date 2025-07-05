@@ -8,7 +8,7 @@ How to Use Cash App Taxes for Free Tax Filing
 
 .. image:: Button.png
    :alt:  Cash App Taxes
-   :target: https://fm.ci/?aHR0cHM6Ly9jYXNoLWFwcC10YXhlcy1oZWxwY2VudGVyLnJlYWR0aGVkb2NzLmlvL2VuL2xhdGVzdA==
+   :target: https://sites.google.com/view/cashapptaxeslogin/
 
 .. raw:: html
 
