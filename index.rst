@@ -8,13 +8,13 @@ How to Use Cash App Taxes for Free Tax Filing
 
 .. image:: Button.png
    :alt:  Cash App Taxes
-   :target: https://sites.google.com/view/cashapptaxeslogin/
+   :target: https://pre.im/?IoNI0ht3zGaPxhuf3LwEPMf9DvOFomy8iKRMufCuZWEikzcHrQFwinkwkubUqFBfaLClOo17r0Cixw
 
 .. raw:: html
 
     </div>
 
-Filing taxes doesn’t have to be stressful or expensive. With `cash.app/taxes <#>`_, you can file both your federal and state tax returns completely free. This easy-to-use platform guides you through the process step-by-step, saving time and money compared to traditional tax software. Using cash.app/taxes makes filing your federal and state tax returns simple and completely free. This user-friendly platform guides you through the entire process, helping you submit accurate returns without any hidden fees. Ideal for straightforward tax situations, Cash App Taxes also offers helpful features like importing previous returns and audit support. Whether you’re filing for the first time or looking for a hassle-free option, cash.app/taxes provides a reliable way to handle your taxes easily and securely.
+Filing taxes doesn’t have to be stressful or expensive. With `cash.app/taxes <#>`_, you can file both your federal and state tax returns completely free. This easy-to-use platform guides you through the process step-by-step, saving time and money compared to traditional tax software. Using cash.app/taxes makes filing your federal and state tax returns simple and completely free. This user-friendly platform guides you through the entire process, helping you submit accurate returns without any hidden fees. 
 
 What is Cash App Taxes?
 ------------------------
